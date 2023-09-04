@@ -5,4 +5,4 @@
 - 📫 How to reach me:
 - Instagram: https://instagram.com/prosper_agwu
 - Facebook: https://facebook.com/prosper_agwu
-- Twitter:  https://twitter.com/AgwProsper
+- Twitter:  https://twitter.com/AgwuProsper
